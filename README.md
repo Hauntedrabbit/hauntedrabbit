@@ -41,7 +41,7 @@
 </p>
 <p align="center">
 ✨ Connect with me ✨ <br>
-🐰 <a href="https://tiktok.com/@8delicatefate">Tiktok</a> | 🌸 <a href="https://instagram.com/@funniesbun88">Instagram</a> | 
+🐰 <a href="https://tiktok.com/@8delicatefate">Tiktok</a> | 🌸 <a href="https://discord.com/@bookweirdob_60279">Instagram</a> | 
 </a>
 </p>
 
