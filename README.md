@@ -1,25 +1,5 @@
-<p align="center">
-  <img src="https://raw.githubusercontent.com/Asthetic/AnimeBackgrounds/master/2aUyrjN.png" width="100%">
-</p>
+![Image](https://github.com/user-attachments/assets/fcdce152-7061-435d-ac05-e9503a996f32)
 
-<p align="center">
-  ───── ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა ────
-<p></p
+I will probably soon or duno... maybe do a straw page or whatever it's called ^_^! to but for now... lemme REST 
 
-
-<p align="center">
-  (^@eartheia^) ~ 🔴🔴 secretly real obsessed w this wonderful person btw !!!
-
-─────  
-  (^@pwttlesmars^) - 🟡 ok—
-
-
-─────
-  ( 🔴 for these I totally love and hang out with 24/7 chuu)
- 
-─────
-  ( 🟡 not so sure... trying to get along for now ^_^) 
-
-
-
-
+![Image](https://github.com/user-attachments/assets/711459bd-0a0c-4820-9fe8-5a078fb63539)
