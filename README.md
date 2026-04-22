@@ -1,8 +1,8 @@
-# 🐰🍽 littel rabbit!
+<img width="99" height="56" alt="1000044060" src="https://github.com/user-attachments/assets/9e8ba435-64b8-44e5-9d0c-30f9ade23b06" /> 
 
 
-![Image](https://github.com/user-attachments/assets/fcdce152-7061-435d-ac05-e9503a996f32)
 
-I'm boo... OK? OK...
+<img width="99" height="56" alt="1000044061" src="https://github.com/user-attachments/assets/dc235968-03f2-4575-91e4-92031b24a8ea" />
 
-# ᶜᵃʳʳᵒᵗˢ
+
+𓂂𓏸 ꒰𝓶𝓲𝓷𝓮... ꒱ 𓏸𓂂
