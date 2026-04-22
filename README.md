@@ -4,6 +4,8 @@
 <img width="99" height="56" alt="1000044060" src="https://github.com/user-attachments/assets/9e8ba435-64b8-44e5-9d0c-30f9ade23b06" /> 
 
 
+
+# my art ! (red one) (still ma woman)
 <img width="3072" height="4096" alt="1000042019" src="https://github.com/user-attachments/assets/c9986b32-17a6-4d30-8d15-ecc23bdfc52b" />
 
 
