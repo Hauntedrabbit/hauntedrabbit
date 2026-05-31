@@ -21,5 +21,7 @@
 <img width="450" height="580" alt="1000045367" src="https://github.com/user-attachments/assets/e65c751c-9c8c-4d48-85fe-e70de26fc137" />
 <img width="423" height="540" alt="1000045368" src="https://github.com/user-attachments/assets/84994789-66a5-47ab-ad8b-780a2be9765c" />
 # uh... my wife okis 
+<img width="668" height="509" alt="1000046073" src="https://github.com/user-attachments/assets/3356c45b-c1c9-4f9a-be60-0d6762307bf6" />
+# MY WIFE SAID IM CUTE !!! OH GOD I'm about to FAINT this is so cute OH GOD!!
 
 
