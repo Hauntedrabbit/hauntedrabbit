@@ -10,7 +10,10 @@
 <img width="734" height="153" alt="1000045315" src="https://github.com/user-attachments/assets/4c152df7-5ed7-421f-8d2a-18f4f5856198" />
 <img width="736" height="184" alt="1000045313" src="https://github.com/user-attachments/assets/b7936862-6500-442a-9deb-23a672c58c09" />
 
+                  
+                   (just Wana say I DONT CLAIM THE ARTS OR IMAGES ! TEIRE ALL from pinterest and idk who to give credit to !! but anywyas yes I don't claim them as mine ^_^!)
 
+              
 　　྾
   <img width="500" height="500" alt="1000044684" src="https://github.com/user-attachments/assets/0fe440ed-ec51-479c-aea0-92a21b7b896c" />
 # art not mine ! belongs to ma wife ^_^!
