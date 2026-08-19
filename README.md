@@ -1,5 +1,2 @@
-<img width="500" height="245" alt="1000049276" src="https://github.com/user-attachments/assets/a13b5036-2c14-47ca-94e5-dbf9319e219e" />
-╰┈➤I will put smt here but not yet , :3 for now feel free to int w me and c*h me
-
-
-➤ if I get to comfortable w someone then I am a bit to much, so if that's bothering then dni           ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧
+currently still wip !
+<img width="735" height="744" alt="1000049692" src="https://github.com/user-attachments/assets/18275da6-6e33-45aa-ab69-aa666ad225ed" />
